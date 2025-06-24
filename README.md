@@ -23,7 +23,7 @@
 
 点击访问：<a href="https://tt-35.pages.dev/">twitter網頁版手機</a>
 
-点击访问：<a href="https://50dh-01.pages.dev/>50度灰</a>
+点击访问：<a href="https://50dh-01.pages.dev/">50度灰</a>
 
 点击访问：<a href="https://aw3-06.pages.dev/">暗网爆料社区</a>
 
